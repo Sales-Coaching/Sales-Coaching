@@ -2,7 +2,7 @@
  
 <center><img src="https://salescoachinguk.files.wordpress.com/2018/10/sales-management-training.jpg?w=730" alt="Sales Coaching" style="float:left;width:350px;height:300px;"></center>
 
-For most businesses and organisations, sales coaching performs an important role in raising sales and even boosting the performance of their sales teams. However, to achieve these positive changes, you must first seek a sales coach who can assist you. But picking the ideal one from tons of experts available can be challenging for you.
+For most businesses and organisations, <i><a href="https://thrivesalescoaching.co.uk/sales-coaching/">sales coaching</a></i> performs an important role in raising sales and even boosting the performance of their sales teams. However, to achieve these positive changes, you must first seek a sales coach who can assist you. But picking the ideal one from tons of experts available can be challenging for you.
 
 Thus, to assist you in locating the most reliable sales coach, read the next paragraphs. Here are a few of the major qualities that differentiate an excellent coach from an undependable one.
 
